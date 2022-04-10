@@ -1,7 +1,7 @@
 ❤🐥❤ Baixe o Bot ❤🐥❤
 
 <p align="center">
-<img src="https://pin.it/55jI5Ub" alt="Kanna-md" largura="300" />
+<img src="https://telegra.ph/file/800d89304e20091a2673d.jpg" alt="Tenoby-Md" largura="300" />
 
 <p align="center">
 <h5 align="center">
